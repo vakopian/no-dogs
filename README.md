@@ -5,7 +5,7 @@ Reasons why you should not have a dog
 * Dogs cost tons of money to train, to feed, to immunize, to keep healthy
 * Dogs are messy, they poop and pee everywhere
 * Dogs are smelly, their smell gets on everything, including the whole house
-* Dogs shed their fur, which is very unhealthy and could cause alergies, asthma and other deaseses
+* Dogs shed their fur, which is very unhealthy and could cause alergies, asthma and other diseases 
 * Dogs are a big libality, in case they bite someone
 * Dogs need constant care, like washing them
 * Dogs can get flees, which could become dangerous for owners
